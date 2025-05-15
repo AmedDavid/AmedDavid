@@ -27,7 +27,7 @@ Feel free to reach out to me via [email](mailto:amukoahdavid@gmail.com) or conne
 
 He/Him
 
-## ⚡ Fun fact:
+## Fun fact:
 
 I'm passionate about photography and love capturing moments in nature during my free time!
 
